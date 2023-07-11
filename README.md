@@ -1,4 +1,10 @@
 # jolie0821.github.io
+<img width="390" alt="image" src="https://github.com/jolie0821/jolie0821.github.io/assets/111267111/6a650b5c-05dc-4361-874c-9eaa71ecd900">
+
+<img width="536" alt="image" src="https://github.com/jolie0821/jolie0821.github.io/assets/111267111/3377e676-7b2f-4c5b-a480-08c2aea37c33">
+
+<img width="649" alt="image" src="https://github.com/jolie0821/jolie0821.github.io/assets/111267111/1c447a2b-78af-408b-aff8-ec75160266aa">
+
 <img width="536" alt="image" src="https://user-images.githubusercontent.com/111267111/184584393-769e0afc-18fb-4b69-8a2c-356f9ebf6d8d.png">
 
 <img width="322" alt="image" src="https://user-images.githubusercontent.com/111267111/184584503-aefada20-65ec-42e7-a1b6-630f760b1a6f.png">

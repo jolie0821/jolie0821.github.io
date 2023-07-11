@@ -1,4 +1,4 @@
-# jolie0821.github.com
+# jolie0821.github.io
 <img width="536" alt="image" src="https://user-images.githubusercontent.com/111267111/184584393-769e0afc-18fb-4b69-8a2c-356f9ebf6d8d.png">
 
 <img width="322" alt="image" src="https://user-images.githubusercontent.com/111267111/184584503-aefada20-65ec-42e7-a1b6-630f760b1a6f.png">

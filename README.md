@@ -1,4 +1,9 @@
 # jolie0821.github.io
+<img width="523" alt="image" src="https://github.com/jolie0821/jolie0821.github.io/assets/111267111/fecb73b5-4749-4a01-bf66-8d4bc19babab">
+<img width="392" alt="image" src="https://github.com/jolie0821/jolie0821.github.io/assets/111267111/3039872b-fc97-4ed7-99ea-f1a3dce3f91d">
+
+<img width="388" alt="image" src="https://github.com/jolie0821/jolie0821.github.io/assets/111267111/8e24792a-ad9e-42f4-9117-2d5931927cf9">
+
 <img width="390" alt="image" src="https://github.com/jolie0821/jolie0821.github.io/assets/111267111/6a650b5c-05dc-4361-874c-9eaa71ecd900">
 
 <img width="536" alt="image" src="https://github.com/jolie0821/jolie0821.github.io/assets/111267111/3377e676-7b2f-4c5b-a480-08c2aea37c33">

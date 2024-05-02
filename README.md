@@ -1,4 +1,8 @@
 # jolie0821.github.io
+```
+芊蔚、雪嫣、风花雪月、朱雪嫣、朱莉
+古琴、茶道、古文化、易经
+```
 <img width="523" alt="image" src="https://github.com/jolie0821/jolie0821.github.io/assets/111267111/fecb73b5-4749-4a01-bf66-8d4bc19babab">
 <img width="392" alt="image" src="https://github.com/jolie0821/jolie0821.github.io/assets/111267111/3039872b-fc97-4ed7-99ea-f1a3dce3f91d">
 
